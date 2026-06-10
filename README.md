@@ -3,18 +3,28 @@ Me! (if ya wanna know stuff bout' me!)
 this is still wip so this'll look bad for a bit but it'll look better in the future! 
 
 this is for pony town, or i guess anything if you find this idk.
-
+ 
 Heya! call me daisy! orr... when im not kinning anyone in the moment Its either Temp/Stormy 
 (and rose if you know me well!)
-I kin a lot.. LOT- of roblox women. usually Nashatra and Daisy! (Molly if im in the mood) (mostly all my kins) and other fandom women - like hyuna (just hyuna) (ALNST)!!
+I kin a lot.. LOT- of roblox women. usually Nashatra and Daisy! (Molly if im in the mood) (mostly all my kins) and other fandom women - like hyuna n lime girl. (ALNST and LHG)
+
 but my main- my n1 kin is Daisy!! (TLG) I see me in her- quite the lot. i might make a kinsona !!
+Im in a lot of fandoms.
+any TLG cosplayers (i mean ANY)
+
+if im daisy and your a matt1337 shipper please, PLEASE sybau you piss me off ever so slightly.
+mollydaisy ❤️ is welcome but-
+tone it down on the kisses and cud. dont flirt unless you know me personally off pt. or actually just in general, i have a amazing partner already. ^0^
+
 C+H is very enc unless im with my amazing, beautiful, adoring, admirable, lovely partner of mine, ORRRRR with my daughter (Estrella)!! (or just if you see me with someone already-)
 
-main fandoms- TLG, Forsaken, Dream Game/Frozen Soul (i dont play the game anymore but I love the characters and lore)
+main fandoms- TLG, Forsaken, Dream Game/Frozen Soul, any Roblox Myths of the sorts, WAAPP, HWWHP,
+any Roblox Psychological (i dont play forsaken anymore but I love the characters and lore)
 
-other fandoms? just ask me. hell naw im not doing all that so sorry.
+Shoutout to OUR (yes OUR) Goat ObliviousHD.  all of his series all cinema ❤️
 
-I am a yume-shipper 👍👍 and multishipper!!
+I am a yume-shipper 👍👍 (chance. 👀👀👀👀👀👀👀👀👀 chance pls int & c+h when im my sona👀👀👀👀)
 18+ fellas pls dont interact unless family. 
 im omnisexual/bi with a male pref. :]
-<img width="1060" height="720" alt="1000013089" src="https://github.com/user-attachments/assets/191717a8-15dd-48a3-8b46-d85faa7d55fc" />
+<img width="735" height="551" alt="1000012829" src="https://github.com/user-attachments/assets/8d1793b6-6bee-4674-b17a-ec855a988541" />
+
