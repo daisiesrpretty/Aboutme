@@ -15,7 +15,7 @@ but my main- my n1 kin is Daisy!! (TLG) I see me in her- quite the lot. i might 
 Im in a lot of fandoms.
 any TLG cosplayers (i mean ANY)
 
-if im daisy and your a matt1337 shipper please, PLEASE sybau you piss me off ever so slightly.
+if im daisy and your a matt1337 shipper please, PLEASE sybau you piss me off ever so slightly. I DONT HAVE A GREAT HISTORY WITH MATTS.
 mollydaisy ❤️ is welcome but-
 tone it down on the kisses and cud. dont flirt unless you know me personally off pt. or actually just in general, i have a amazing partner already. ^0^
 
