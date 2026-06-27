@@ -20,10 +20,10 @@ if im daisy and your a matt1337 shipper please, PLEASE sybau you piss me off SO 
 
 mollydaisy ♡ is welcome but-
 tone it down on the kisses and cud. dont flirt unless you know me personally off pt. or actually just in general, i have a amazing partner already. ^0^
-C+H is very enc unless im with my amazing, beautiful, adoring, admirable, lovely partner of mine, (love you!) ORRRRR with my daughter (Estrella)!!  (or just if you see me with someone already-)
+C+H is very enc unless im with my amazing, beautiful, adoring, admirable, lovely partner of mine, (love you!) ORRR with craig/matt  (and uh sorry if i leave suddenly if ur not the two people listed.- I ditched you for the 2 listed people kay?
 
 main fandoms- TLG, Forsaken, Dream Game/Frozen Soul, any Roblox Myths of the sorts, WAAPP, HWWHP,
-Roblox Admins, (forgot to put this one in 😢)
+Roblox Admins, (forgot to put this one in )
 any Roblox Psychological Horror 
 
 Also.. Err FNF/PJSK/JSAB (i ♡ rhythm games!!)
