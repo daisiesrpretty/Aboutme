@@ -10,7 +10,7 @@ Heya! call me daisy! orr... when im not kinning anyone in the moment Its either 
 
 you'll mostly see me with my partner yayyyaayyy hooray !!1!1 ❤️❤️❤️💕💕 only interact with me if you know us BOTH.
 
-I kin a lot.. LOT- of roblox women. usually Nashatra and Daisy! (Molly if im in the mood) and other fandom women - like hyuna n lime girl. (ALNST and LHG (thats like all though)
+I kin a lot.. LOT- of roblox women. usually Nashatra and Daisy! (and One) - (thats like all though)
 but my main- my n1 kin is Daisy!! (TLG) I see me in her- quite the lot. i might make a kinsona !!
 Im in a lot of fandoms.
 
@@ -19,7 +19,9 @@ any TLG cosplayers can c+h with me! or I guess anyone can if they want!
 if im daisy and your a matt1337 shipper please, PLEASE sybau you piss me off SO MUCH!!! I DONT HAVE A GREAT HISTORY WITH MATTS.
 
 mollydaisy ♡ is welcome but-
-tone it down on the kisses and cud. dont flirt unless you know me personally off pt. or actually just in general, i have a amazing partner already. ^0^
+tone it down on the kisses and cud.
+dont flirt unless you know me personally off pt. or actually just in general, i have a amazing partner already. ^0^
+
 C+H is very enc unless im with my amazing, beautiful, adoring, admirable, lovely partner of mine, (love you!) ORRR with craig/matt  (and uh sorry if i leave suddenly if ur not the two people listed.- I ditched you for the 2 listed people kay?
 
 main fandoms- TLG, Forsaken, Dream Game/Frozen Soul, any Roblox Myths of the sorts, WAAPP, HWWHP,
